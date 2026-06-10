@@ -1,1 +1,1 @@
-<a href="https://mynickname.com/ru/id1844686"><img src="https://mynickname.com/img.php?id=1844686&sert=1" alt="Сертификат на никнейм Wonordel, зарегистрирован на https://t.me/wonordel" border="0" /></a><br /><a href="https://mynickname.com/ru/tags/games">Никнеймы для игр</a>
+<a href="https://mynickname.com/ru/id1844686"><img src="https://mynickname.com/img.php?id=1844686&sert=1" alt="Сертификат на никнейм Wonordel, зарегистрирован на https://t.me/wonordel" border="0" /></a>
